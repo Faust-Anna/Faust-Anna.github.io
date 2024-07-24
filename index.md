@@ -1,1 +1,1 @@
-# Tilmann Rocha - der Alleskönner unter den Trainern
+# Tilmann Rocha - der Alleskönner
